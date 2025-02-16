@@ -6,7 +6,7 @@
 </h1>
 
 <p align=center>
-<img src="https://static.wikia.nocookie.net/cookierunkingdom/images/0/09/Resplendent_wind_guardian_gacha_animation.gif/revision/latest/scale-to-width-down/250?cb=20240903231547" height="300px width=500px;>
+<img src="https://static.wikia.nocookie.net/cookierunkingdom/images/0/09/Resplendent_wind_guardian_gacha_animation.gif/revision/latest/scale-to-width-down/250?cb=20240903231547" height="300px" width="400px";> 
 </p>
 
 <p align=center>
@@ -14,7 +14,7 @@
 </p>
 
 <h1 align=center>
-  ⋅───⊱༺ ♰ ༻⊰───⋅
+  ⋅─────⊱༺ ♰ ༻⊰─────⋅
 </h1>
 
 </body>
