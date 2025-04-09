@@ -5,7 +5,9 @@
   ✦ •┈ ๑ ⋅⋯ ➼ ⋯⋅ ๑ ┈• ✦
 </h1>
 
-<p align=center>lingang guli guli</p>
+<center>
+<img src="https://i.pinimg.com/originals/50/08/42/500842e8e3e532f255ad34cf78d2604b.jpg">
+</center>
 
 <h1 align=center>
   ⋅─────⊱༺ ♰ ༻⊰─────⋅
