@@ -2,7 +2,7 @@
 
 <body>
 <h1 align=center>
-  ✦ •┈ ๑ ⋅⋯ ➼ ⋯⋅ ๑ ┈• ✦
+  ✦ •┈ ๑ ⋅⋯ . ⋯⋅ ๑ ┈• ✦
 </h1>
 
 <center>
