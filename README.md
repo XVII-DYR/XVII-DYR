@@ -19,7 +19,12 @@ Feel free to cuddle and hugs, no need to ask :>
 ----------------------------------------
 </small>
 
+
+![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=pizza_slices&color=c02a2e)
+
+
 [![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/playlist/6pt4jLCkYxQRuOG48JMHg7)
+
 
 </div>
 
