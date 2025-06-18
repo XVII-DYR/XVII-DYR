@@ -26,7 +26,8 @@ Feel free to cuddle and hugs, no need to ask :>
 Currently maining....
 
 Elliot and chance!
-mama @Absolute1Territory papa @chilidogss
+
+
 
 ‎ ‎ 
 </small>
