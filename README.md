@@ -1,42 +1,54 @@
 <div align="center">
 
- ![download](https://github.com/user-attachments/assets/952fd4f0-0e1b-498d-9f38-94416ffdadf9)
+<img width="1464" height="378" alt="image" src="https://github.com/user-attachments/assets/2bebc1e3-920f-495e-b872-1a9c79cca0dc"/>
 
 </div>
+<br>
 
-  <img align="right" width="42%" src="https://github.com/user-attachments/assets/0707669d-935b-45ff-a12a-2d3a6b039819">
-
+  <img align="right" width="390" height="390" src="https://github.com/user-attachments/assets/6f83c6c6-a3e9-422e-ba3b-39fae907374c">
+  
+<br>
 <div align="center">
+<br>
  
-### ; INFO ! 🍕 -
+### ୨୧  ᭡ ˖ 𝗏𝖾𝗋α'𝗌 ! ᑯα𝗍α ⸝⸝
 
   <small>
-Quira , Qui, Eli
+𝑮𝒆𝒕 𝒕𝒐 𝒌𝒏𝒐𝒘 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 !
+   </small>
+<br>
+<br>
+  <small>
+  
+୭ 𝐕𝖾𝗋α ' 𝐕𝖾𝗋ƶ
 
-Forsaken , guesty , bee swarm
-    
-Always availble to talk! Afk most of the time so whisper to interact.
-Feel free to cuddle and hugs, no need to ask :>
+୭ ρ𝗋𐓣𝗌 ; 𝗌ɦ𝖾 ' ɦ𝖾𝗋
 
+୭ ᥣ𝗂𝗄𝖾𝗌 ; 𝗌𝗂𐓣𝗀𝗂𐓣𝗀 , 𝗌ω𝗂ꭑꭑ𝗂𐓣𝗀, ρᥣα𝗒𝗂𐓣𝗀 𝗏ⱺᥣᥣ𝖾𝗒ᑲαᥣᥣ , ᑯ𝗋αω𝗂𐓣𝗀 α𐓣ᑯ ρυᑲꭑα𝗍 ꭑα𝗄𝖾𝗋 !
 
-───── ⋆⋅☆⋅⋆ ────────── ⋆⋅☆⋅⋆ ────────── ⋆⋅☆⋅⋆ ─────
+୭ 𝐆αꭑ𝖾𝗌 ; 𝗋ᑲᥣ𝗑 , ꭑ𝖼 , ꭑᥣᑲᑲ -- ꭑα𝗂𐓣 ; ꭑα𝗀𝖾 / ꭑꭑ !
+
+──⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔──
 </small>
 
 
-![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=pizza_slices&color=c02a2e)
+![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Constellations~&color=EFD5A3)
 
+</div>
+
+<div align="left">
 <small>
 
-
-·̩͙།† ͝ ︶ ͝ ·̩͙།† ͝ ︶ ͝  ͝ ︶ ͝ †། ·̩͙ ͝ ︶ ͝ †། ·̩͙
-
-
+‎ ‎ ‎ ‎ ◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ ྀི︶˚̣̣̣ ྀི◟ ͜ ◞
 ‎ ‎ 
 </small>
+</div>
+<div>
 
+<br>
 
 </div>
 
 <div align="center">
 
-   ![download](https://github.com/user-attachments/assets/f61ec0a7-83a6-47e1-82f0-4bf14ee928c1)
+<img width="1464" height="378" alt="image" src="https://github.com/user-attachments/assets/f0ebc2c2-c5d7-4ae2-bc88-12f3b5ef8fe2" />
