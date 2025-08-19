@@ -8,7 +8,6 @@
 
   <img align="right" width="390" height="390" src="https://github.com/user-attachments/assets/6f83c6c6-a3e9-422e-ba3b-39fae907374c">
   
-<br>
 <div align="center">
 <br>
  
