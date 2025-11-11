@@ -52,4 +52,4 @@
 
 <div align="center">
 
-<img width="1364" height="367" alt="image" src="https://i.pinimg.com/1200x/e3/48/b9/e348b94b090296ae0617486ac46526d1.jpg" />
+<img width="1364" height="367" alt="image" src="https://i.pinimg.com/736x/68/37/de/6837de3ba9c7a0340b422303e57fb0cb.jpg" />
