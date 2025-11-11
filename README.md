@@ -33,7 +33,7 @@
 </small>
 
 
-![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Constellations~&color=EFD5A3)
+![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Devifans~&color=e4d459)
 
 </div>
 
