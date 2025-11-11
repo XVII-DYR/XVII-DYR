@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="1364" height="367" alt="image" src="https://i.pinimg.com/originals/84/3c/55/843c555ad5f4fd44c476d85297457f29.gif"/>
+<img width="1267" height="367" alt="image" src="https://i.pinimg.com/originals/84/3c/55/843c555ad5f4fd44c476d85297457f29.gif"/>
 
 <br>
 </div>
@@ -52,4 +52,4 @@
 
 <div align="center">
 
-<img width="1364" height="367" alt="image" src="https://i.pinimg.com/1200x/d0/3d/d1/d03dd1c26e0e7399210c8828adb7a3b1.jpg" />
+<img width="1267" height="367" alt="image" src="https://i.pinimg.com/1200x/d0/3d/d1/d03dd1c26e0e7399210c8828adb7a3b1.jpg" />
