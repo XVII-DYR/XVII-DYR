@@ -6,7 +6,7 @@
 </div>
 <br>
 
-  <img align="right" width="390" height="390" src="https://i.pinimg.com/736x/70/cc/2d/70cc2d4ced1e806db0f6ffc17a7ef8f0.jpg">
+  <img align="right" width="390" height="390" src="https://i.pinimg.com/736x/0a/a5/6b/0aa56b1475d30f58646a908c63508e19.jpg">
 
 <br>
 <div align="center">
@@ -33,7 +33,7 @@
 </small>
 
 
-![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Petals~&color=eeb3db)
+![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Petals~&color=eca5cd)
 
 </div>
 
