@@ -25,7 +25,7 @@
 
 ୭ ρ𝗋𐓣𝗌 ; 𝗌ɦ𝖾 ' ɦ𝖾𝗋
 
-୭ The Flower Blooms with Dignity <3!! !
+୭ The Flower Blooms with Dignity!
 
 ୭ 𝐆αm𝖾𝗌 ; 𝗋ᑲᥣ𝗑 , m𝖼 , gι , mᥣᑲᑲ -- mα𝗂𐓣 ; mα𝗀𝖾 / mm !
 
