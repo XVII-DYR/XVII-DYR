@@ -12,7 +12,7 @@
 <div align="center">
 <br>
  
-### ٠࣪⭑ Quira's . données
+###  ˖.𖥔. ⊹ ࣪ ˖  Quira's . données
 
   <small>
     
@@ -25,28 +25,30 @@ Apprenez à me connaître.
   
 ⟡ Quira , Vera , Verz
 
-⟡ 
+⟡ Learning multiple languages.
 
 ⟡ "Weapon choice, it is so personal, non? You pick a gun and it tells me who you are."
 
 ⟡ Games ; RBLX, VALO, MC, MLBB
 
 ⊰═══════════════════⊱⊰═══════════════════⊱
+
 </small>
-
-
-![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Bullets.&color=a67433)
 
 </div>
 
-<div align="left">
+<div align="center">
 <small>
 
-✦•······················•✦•······················•✦✦•······················•✦•······················•✦‎✦•······················•✦✦•······················•✦•······················•✦✦•······················•✦✦•······················•✦
+✦•······················•✦•······················•✦✦•······················•✦•······················•✦‎✦•······················•✦✦•······················•✦•······················•✦✦•······················•✦
 
 </small>
 </div>
 <div>
+  
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Bullets.&color=a67433)
 
 <br>
 
