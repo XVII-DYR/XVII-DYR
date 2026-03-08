@@ -20,7 +20,6 @@ Apprenez à me connaître.
 
    </small>
 <br>
-<br>
   <small>
   
 ⟡ Quira , Vera , Verz
