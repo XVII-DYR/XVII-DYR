@@ -1,47 +1,49 @@
 <div align="center">
 
-<img width="1167" height="367" alt="image" src="https://i.pinimg.com/originals/4d/fb/08/4dfb086f5f00d5ad104900f21fe5f407.gif"/>
+<img width="1167" height="567" alt="image" src="https://i.pinimg.com/736x/cf/bb/a7/cfbba7addc33aeeca6c9d61e6226f140.jpg" />
 
 <br>
 </div>
 <br>
 
-  <img align="right" width="390" height="390" src="https://i.pinimg.com/736x/0a/a5/6b/0aa56b1475d30f58646a908c63508e19.jpg">
+  <img align="right" width="390" height="390" src="https://media.tenor.com/hKXOmT1igk0AAAAM/chamber-valorant.gif">
 
 <br>
 <div align="center">
 <br>
  
-### ୨୧ ˖ Verα'𝗌 ! ᑯα𝗍α ⸝⸝
+### ٠࣪⭑ Quira's . données
 
   <small>
-𝑮𝒆𝒕 𝒕𝒐 𝒌𝒏𝒐𝒘 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 !
+    
+Apprenez à me connaître.
+
    </small>
 <br>
 <br>
   <small>
   
-୭ 𝐕𝖾𝗋α ' 𝐕𝖾𝗋ƶ
+⟡ Quira , Vera , Verz
 
-୭ ρ𝗋𐓣𝗌 ; 𝗌ɦ𝖾 ' ɦ𝖾𝗋
+⟡ 
 
-୭ The Flower Blooms with Dignity!
+⟡ "Weapon choice, it is so personal, non? You pick a gun and it tells me who you are."
 
-୭ 𝐆αm𝖾𝗌 ; 𝗋ᑲᥣ𝗑 , m𝖼 , gι , mᥣᑲᑲ -- mα𝗂𐓣 ; mα𝗀𝖾 / mm !
+⟡ Games ; RBLX, VALO, MC, MLBB
 
-──⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔──
+⊰═══════════════════⊱⊰═══════════════════⊱
 </small>
 
 
-![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Petals~&color=eca5cd)
+![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=Bullets.&color=a67433)
 
 </div>
 
 <div align="left">
 <small>
 
-‎ ‎ ‎◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶ ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ 
-‎ ‎ 
+✦•······················•✦•······················•✦✦•······················•✦•······················•✦‎✦•······················•✦✦•······················•✦•······················•✦✦•······················•✦✦•······················•✦
+
 </small>
 </div>
 <div>
@@ -51,5 +53,3 @@
 </div>
 
 <div align="center">
-
-<img width="1167" height="367" alt="image" src="https://i.pinimg.com/736x/c0/1f/a0/c01fa09e7bf272849d9bcd3f24e783a2.jpg" />
